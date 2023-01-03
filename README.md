@@ -1,0 +1,1 @@
+# WaveFunctionCollapse_RzeszowUniversityOfTechnology_IntroductionToProgramming_Project
